@@ -7,18 +7,17 @@ https://i.guim.co.uk/img/media/6fca1cea38a43e049d150a454978b7eece75a72d/196_590_
 
 
 ## One line summary
-Revitalising India's Government Schools, One line Summary.
-
+The change starts with the teachers being leaders. Turning from faceless functionaries to inspirational leaders.
 
 ## Description
-Revitalising India's Government Schools, Long Description. Revitalising India's Government Schools, Long Description.
-Revitalising India's Government Schools, Long Description. Revitalising India's Government Schools, Long Description.
-Revitalising India's Government Schools, Long Description.
+The Indian Education System has long suffered from apathy, apathy that has manifested top down.
+Previous attempts to improve India’s dismal education system had focused on teachers, the classroom and the curriculum – never on principals.
 
-Revitalising India's Government Schools, Long Description. Revitalising India's Government Schools, Long Description.
-Revitalising India's Government Schools, Long Description.
+To counter this apathy one of the approach is to change the outlook to the problem, finding and nurtring educationists as leaders. The programme is run by the Foundation for Education Leadership, set up by Piramal, whose founders come from Jhunjhunu.
 
-Revitalising India's Government Schools, Long Description. Revitalising India's Government Schools, Long Description.
+The role demands a totally different skill set. They have to build a team, engage the village, motivate the staff, create a positive atmosphere, and use resources well. Managing a school is like running a small business.
+
+Annual Stae of Education Report: http://img.asercentre.org/docs/Publications/ASER%20Reports/ASER%202017/aser2017fullreportfinal.pdf
 
 
 ## Link
